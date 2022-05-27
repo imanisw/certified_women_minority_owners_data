@@ -1,0 +1,1 @@
+# certified_women_minority_owners_data
